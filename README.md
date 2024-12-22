@@ -1,4 +1,4 @@
-# The Ordinary Batch Code Checker
+# The Ordinary Batch Code Checker - Check Fresh Cosmetics Batch Code Decoder
 
 ## ➤ ►🌍📺💄👉 **[Check the age of your favorite cosmetics!](https://bit.ly/49NqOw1)**
 
